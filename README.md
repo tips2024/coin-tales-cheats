@@ -70,10 +70,10 @@ A common mistake players make is rushing through villages. **Don’t rush!** Com
 Coin Tales often hosts events and tournaments where you can earn extra spins, cards, and coins. **Raid Madness** is one example where you can maximize your raiding abilities to earn additional rewards.
 
 ### 9. **Utilize Multiple Accounts (Ethically)**
-Many experienced players create “baby accounts” to gain extra spins, coins, and cards. These secondary accounts help them progress faster by providing additional resources. Make sure to follow game rules and avoid actions that could lead to penalties【9†source】.
+Many experienced players create “baby accounts” to gain extra spins, coins, and cards. These secondary accounts help them progress faster by providing additional resources. Make sure to follow game rules and avoid actions that could lead to penalties.
 
 ### 10. **VIP Player Status**
-While there's no guaranteed way to become a VIP player in Coin Tales, those who manage to achieve it enjoy significant benefits like exclusive rewards and offers. **Spending real money** on the game and progressing quickly can increase your chances of being invited into the VIP club【8†source】.
+While there's no guaranteed way to become a VIP player in Coin Tales, those who manage to achieve it enjoy significant benefits like exclusive rewards and offers. **Spending real money** on the game and progressing quickly can increase your chances of being invited into the VIP club.
 
 ---
 
@@ -83,10 +83,10 @@ While there's no guaranteed way to become a VIP player in Coin Tales, those who 
 You can get more free spins by claiming daily spin links, logging in for daily bonuses, collecting card sets, and participating in special events. Connecting your game to Facebook also helps to get spins.
 
 ### **What is the best way to collect rare cards?**
-Purchase chests in every village and trade cards with friends or in Facebook groups. Be sure to buy extra chests in villages with rare or gold cards【8†source】【9†source】.
+Purchase chests in every village and trade cards with friends or in Facebook groups. Be sure to buy extra chests in villages with rare or gold cards.
 
 ### **How do I protect my village from raids?**
-Make sure to collect shields from the slot machine, and upgrade your village's defense whenever possible. If you are raided, spend your coins quickly to minimize losses【7†source】.
+Make sure to collect shields from the slot machine, and upgrade your village's defense whenever possible. If you are raided, spend your coins quickly to minimize losses.
 
 ### **Can I play Coin Tales on multiple devices?**
 Yes, but you'll need to sync your game via Facebook to ensure your progress is shared across devices. Some players use multiple accounts to gain more rewards, but this needs careful management.
